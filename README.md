@@ -4,11 +4,11 @@
 * 16 years old  
 * May 1, 1999  
 * Favorite Foods:  
- * Pizza  
- * Ice cream  
- * French Fries    
- * Favorite Shows:
-   * Supernatural   
+   * Pizza  
+   * Ice cream  
+   * French Fries    
+* Favorite Shows:
+   * Supernatural
    * Friends  
    * Bob's Burgers  
    
