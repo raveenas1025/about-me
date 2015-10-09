@@ -8,9 +8,13 @@ Check out my [google site](https://sites.google.com/a/hstat.org/raveenas1025sep1
    * Pizza  
    * Ice cream  
    * French Fries    
-* Favorite Shows:
-   * Supernatural
+* Favorite Shows & Celebrities on the Show:
+   * Supernatural  
+    *Jared Padalecki as Sam Winchester    
    * Friends  
-   * Bob's Burgers  
-   * Grey's Anatomy   
+    *Matt LeBlanc as Joey Tribbiani  
+   * Bob's Burgers    
+    *Dan Mintz as Tina Belcher  
+   * Grey's Anatomy  
+    *Ellen Pompeo as Meredith Grey
  
